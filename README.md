@@ -13,7 +13,7 @@ Moko Chat AI is an advanced conversational assistant designed to make your inter
 
 3. **Feedback and Support**: If you have any suggestions or encounter any issues, don't hesitate to reach out. Your feedback helps us improve the experience!
 
-4. **Connect with Me**: Follow me on Instagram [@eritoayan](https://instagram.com/eritoayan) for updates, tips, and more!
+4. **Connect with Me**: Follow me on Instagram [@yori.ayan](https://instagram.com/yori.ayan) for updates, tips, and more!
 
 Enjoy your time with Moko Chat AI!
 
